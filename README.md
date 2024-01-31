@@ -1,6 +1,8 @@
-# Over Group
+# OVER GROUP INC		
+2385 N.W. Executive Center Drive Suite 100
+Boca Raton, FL 33431
 
-- Desarrollo de software Boca ratón, Florida, USA.
+- Desarrollo de software y servicios de consultoría
 - Grupo empresarial diversificado con presencia internacional y orientado al futuro de la tecnología.
 
 España, Colombia, Brasil, EEUU, y Dubai son las principales sedes de este grupo. 
